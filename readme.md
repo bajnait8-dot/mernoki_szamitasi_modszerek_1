@@ -1,4 +1,1 @@
-# demok
-https://github.com/Fibutterfly/mernoki_demo
-https://github.com/Fibutterfly/MSZM_excel_demo.git
-https://github.com/Fibutterfly/MSZM_java.git
+Szabadság van igy Most már Szabad utat adva a teljes emberi húsvér jogát át adni.Minden Kapu most AUTOMATIKUSAN KINYILT
